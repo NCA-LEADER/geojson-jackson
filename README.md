@@ -1,3 +1,8 @@
+Dn P (¥) Wht yu tlkng abt, yu wll? rcrd chck!
+wht brgt ths on? lys abt fmly!
+srt yr hd out Jk.
+We cn all do wht yu do bt do we?
+
 GeoJson POJOs for Jackson
 =========================
 
